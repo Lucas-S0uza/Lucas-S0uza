@@ -1,5 +1,5 @@
 
-## Olá! Me chamo Lucas Souza, tenho 19 anos e sou estudante de Engenharia de Software 👋🏼
+## Olá! Me chamo Lucas Souza, sou estudante de engenharia de Software👋🏼💻
 
 ## Rede Social
 
